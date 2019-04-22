@@ -18,7 +18,11 @@ Some course outcomes that i feel like i really touched on this week is just bein
 
 In the past two weeks we have been focusing on course Outcome #3 ("Transform instructions") and Outcome 2 ("Information competency"), these transfer over to us using things like this website and learning to be able to write in mark down to make us more familar to these forms of media and writing. These two methods apply to course out comes 2 and 3 because when reading the how to's on writing in mark down we are actually doing what course outcome 2 wants us to be doing. we are taking information in the form of instructions and then using it to do things like write in mark down or build a LEGO set that one of my class amtes has made.
 
+In class this week I was able to help multiple of my classmates with not only with their projects but also with some help with this website as well. with the help of another class mate i was able to upload the hyperlink above and then because of that i was able to help some other classmates with the same thing and it created a kind of domino effect with in the class.
 
+In the next cuple weeks i am really excited to be able to start a big project in our class called the pierce hacker project and the reason that I am able excited is because I will be able to get into a class rutine and just be able to know exactly what i need to do everyday.
+
+As a proffesor there is nothing that you can do to become a better proffesor, i think you are awesome!
 # Entry 3
 
 # Entry 4
