@@ -23,18 +23,33 @@ In class this week I was able to help multiple of my classmates with not only wi
 In the next cuple weeks i am really excited to be able to start a big project in our class called the pierce hacker project and the reason that I am able excited is because I will be able to get into a class rutine and just be able to know exactly what i need to do everyday.
 
 As a proffesor there is nothing that you can do to become a better proffesor, i think you are awesome!
+
 # Entry 3
+Throughout the week we worked on composing a survey that we plan to send out to a controlled portion of the student body at pierce college. A challenging part of composing the survey was that we had to transform all of everyone’s ideas into a real working survey. This required a lot of collaboration and I think that it went pretty well considering none of us had done hey survey to the scale before. Something that was interesting about this process is how everybody was so open to everybody else’s opinions and nobody got too defensive about protecting their idea which I thought was very cool but everybody was able to be so open minded.
+
+The audience for the Pierce hacker project is any student who is wanting more information on how to do something that is part of the technological aspect of school. I think that you chose to deliver this project in the form of a public website so that anybody would be able to access it at any given time for any reason. When something is not As public as the Pierce Hacker project it causes students to have to jump through a lot more hoops to get the information they need. 
+
+This week I learned how to use Google docs which is something that I have never used before in a collaborative way which was really cool.
 
 # Entry 4
+My process to drafting our analytical report was to go through the survey multiple times and pick out a few repetitive problems that students are having and focus on those rather than focusing on the smaller issues that students are having.
+
+Everybody who read my draft seem to like it of course there was the minor changes that I needed to make to make it presentable but for the main report itself everybody who read it said that I did a fairly good job at getting the information that I needed to across the table in our you to open.
+
+Between now and Monday I plan on fixing all those minor changes that I need to to make my draft presentable and finish everything that I need to.
+
+This week I think I learned how to ride a analytical report. This is something that I have never done before and rather enjoyed learning how to do. I have never been asked to write an analytical report until now so I find that this information will help me in the future.
 
 # Entry 5
 
+My thoughts on the OER project are that it would be cool but for me personally I think it might be confusing at the start. I think that a good way to approach this would be in the same way that we approached the pierce hacker project in the sense that we just take it slow and do a little bit at a time so that we are able to produce quality work.
+
+My thoughts on the peers hacker project is that it has gone very well so far and we should continue to produce the same quality of work and we will have a fully operational website in no time at all. If I were to take this route I wouldn’t do the same thing that I have been doing. Just take it slow and produce quality work.
+
+My thoughts on the self design project are that it would be cool but it leaves a lot of room for open ended ideas which is nice but at the same time can be hard to produce work that goes towards a general goal. If I were to Take this option I would do the same thing that I would for all the other projects. Just take it slow and produce quality work.
 # Entry 6
 
 # Entry 7
 
 # Entry 8
 
-# Entry 9
-
-# Entry 10
