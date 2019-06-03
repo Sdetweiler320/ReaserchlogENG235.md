@@ -48,8 +48,9 @@ My thoughts on the peers hacker project is that it has gone very well so far and
 
 My thoughts on the self design project are that it would be cool but it leaves a lot of room for open ended ideas which is nice but at the same time can be hard to produce work that goes towards a general goal. If I were to Take this option I would do the same thing that I would for all the other projects. Just take it slow and produce quality work.
 # Entry 6
+No Content...
 
 # Entry 7
-
+No Content...
 # Entry 8
 
