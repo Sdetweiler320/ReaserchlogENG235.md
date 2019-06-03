@@ -53,4 +53,8 @@ No Content...
 # Entry 7
 No Content...
 # Entry 8
+My thoughts on the OER project are that it would be cool but for me personally I think it might be confusing at the start. I think that a good way to approach this would be in the same way that we approached the pierce hacker project in the sense that we just take it slow and do a little bit at a time so that we are able to produce quality work.
 
+My thoughts on the peers hacker project is that it has gone very well so far and we should continue to produce the same quality of work and we will have a fully operational website in no time at all. If I were to take this route I wouldn’t do the same thing that I have been doing. Just take it slow and produce quality work.
+
+My thoughts on the self design project are that it would be cool but it leaves a lot of room for open ended ideas which is nice but at the same time can be hard to produce work that goes towards a general goal. If I were to Take this option I would do the same thing that I would for all the other projects. Just take it slow and produce quality work.
